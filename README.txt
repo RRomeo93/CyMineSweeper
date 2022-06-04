@@ -1,4 +1,4 @@
-(tout traduire en anglais)
+
 
 Bonjour merci d'avoir téléchargé le démineur de Samuel et Nathan à CY TECH 
 GROUPE 7 PRE ING 1 MI
